@@ -1,2 +1,2 @@
 # Github-Exercise-03
-My completed Github Exercise 03
+Please look into my Colleague Introduction file for any errors before sending this email to my new colleagues. Thank you.
